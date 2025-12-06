@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently a Somophore at IIIT Delhi<br>Passionate about Artificial Intelligence<br>Open to Work<br>
+Currently Senior at IIIT Delhi<br>Passionate about Artificial Intelligence<br>Open to Work<br>
 
 
 ## 🌐 Socials:
